@@ -1,23 +1,22 @@
-# Quran Notes
+# Qurʾān Notes
 
-This repository contains my personal notes and reflections from various Islamic lectures, tafsir series, and educational content related to the Qur’an.
+A personal collection of notes and reflections from Qurʾānic tafsīr and Islamic lectures.
 
 ## 📖 Purpose
 
-The goal of this repository is to:
-- Organize my study notes from different Islamic scholars
-- Keep track of key reflections and explanations from lectures
-- Build a personal reference for ongoing learning of the Qur’an
+To organise and retain key insights from Qurʾānic study, lectures, and tafsīr for personal learning and revision.
 
 ## 🎙️ Sources
 
-Notes may include insights from:
-- Nouman Ali Khan lectures and tafsir series
-- Dr. Fāḍil al-Sāmirāʾī (فاضل السامرائي) videos and explanations
-- Other Islamic scholars and beneficial talks I come across
+Notes may include material from:
+- Nouman ʿAlī Khān
+- Dr. Fāḍil al-Sāmarrāʾī (فاضل السامرائي)
+- Other Islamic scholars and lectures encountered during study
 
-## 🗂️ Structure
+## ⚠️ Note
 
-The repository is organized into folders by topic, lecture series, or surah (as needed). Structure may evolve over time as more notes are added.
+These are personal study notes and summaries. They are not formal scholarly rulings. For authoritative explanations, refer to qualified scholars and primary sources.
 
-Example:
+---
+
+*May Allāh place barakah in this knowledge and make it beneficial.*
