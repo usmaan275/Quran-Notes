@@ -13,7 +13,7 @@ The goal of this repository is to:
 
 Notes may include insights from:
 - Nouman Ali Khan lectures and tafsir series
-- Dr. Fadel Al-Samarrai videos and explanations
+- Dr. Fāḍil al-Sāmirāʾī (فاضل السامرائي) videos and explanations
 - Other Islamic scholars and beneficial talks I come across
 
 ## 🗂️ Structure
