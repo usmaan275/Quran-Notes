@@ -1035,6 +1035,7 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 - **Siblings** — Brothers, Sisters
 - **Extended Family** — Cousins, Grandparents, Uncles, Aunties
 - **Teachers** — Past, present, and future teachers
+- **Masājid** — In Luton and across the world
 - **Future Spouse** — A righteous future spouse filled with sakīnah, mawaddah, and raḥmah
 - **Future Children** — Righteous, obedient offspring who are a coolness of the eyes
 - **Future In-Laws** — A righteous and welcoming family
@@ -1444,6 +1445,18 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 </div>
 
 > *"O Allāh, rectify the affairs of the Muslims in Palestine and everywhere, O Possessor of Majesty and Honour."*
+
+---
+
+### Duʿāʾ for the Protection of the Two Sacred Mosques
+
+<div align="center">
+
+**اللَّهُمَّ احْفَظِ الْحَرَمَيْنِ الشَّرِيفَيْنِ، وَاحْفَظْ أَهْلَهُمَا، وَوُلَاةَ أَمْرِهِمَا، وَكُلَّ مَنْ يَقُومُ عَلَى خِدْمَتِهِمَا**
+
+</div>
+
+> *“O Allāh, protect the Two Noble Sanctuaries, protect their people, their leaders, and all those who serve them.”*
 
 ---
 
