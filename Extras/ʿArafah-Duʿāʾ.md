@@ -431,7 +431,7 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 
 ---
 
-### Duʿāʾ of Prophet Yūsuf ﷺ
+### [12:101] — Duʿāʾ of Prophet Yūsuf ﷺ
 <div align="center">
 
 **فَاطِرَ السَّمَاوَاتِ وَالْأَرْضِ أَنْتَ وَلِيِّي فِي الدُّنْيَا وَالْآخِرَةِ ۖ تَوَفَّنِي مُسْلِمًا وَأَلْحِقْنِي بِالصَّالِحِينَ**
@@ -796,6 +796,18 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 
 ---
 
+### Duʿāʾ of Seeking Forgiveness for One’s Sins (Sayyid al-Istighfār Variant)
+
+<div align="center">
+
+**اللَّهُمَّ إِنِّي ظَلَمْتُ نَفْسِي ظُلْمًا كَثِيرًا، وَلَا يَغْفِرُ الذُّنُوبَ إِلَّا أَنْتَ، فَاغْفِرْ لِي مَغْفِرَةً مِنْ عِنْدِكَ، وَارْحَمْنِي، إِنَّكَ أَنْتَ الْغَفُورُ الرَّحِيمُ**
+
+</div>
+
+> *“O Allāh, I have wronged myself greatly, and none forgives sins except You. So forgive me with a forgiveness from You, and have mercy on me. Indeed, You are the Most Forgiving, Most Merciful.”*
+
+---
+
 ### Another well-known forgiveness duʿāʾ (general)
 
 <div align="center">
@@ -841,6 +853,18 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 </div>
 
 > *"O Allāh, bring comfort to my loneliness in my grave, have mercy upon me through the Magnificent Qurʾān, and make it for me a leader, a light, guidance, and mercy. O Allāh, remind me of what I have forgotten of it, teach me what I do not know of it, grant me its recitation during the hours of the night and the edges of the day, and make it a proof for me, O Lord of the worlds."*
+
+---
+
+### Duʿāʾ for Seeking Allāh’s Help and Support
+
+<div align="center">
+
+**اللَّهُمَّ أَعِنَّا عَلَىٰ ذِكْرِكَ وَشُكْرِكَ وَحُسْنِ عِبَادَتِكَ**
+
+</div>
+
+> *“O Allāh, help us in remembering You, in being grateful to You, and in worshipping You in the best manner.”*
 
 ---
 
