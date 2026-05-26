@@ -34,11 +34,11 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 
 <div align="center">
 
-**الْحَمْدُ لِلَّهِ الَّذِي هَدَانَا لِهَٰذَا وَمَا كُنَّا لِنَهْتَدِيَ لَوْلَا أَنْ هَدَانَا اللَّهُ**
+**الْحَمْدُ لِلَّهِ الَّذِي هَدَانَا لِهَٰذَا وَمَا كُنَّا لِنَهْتَدِيَ لَوْلَا أَنْ هَدَانَا اللَّهُ ۖ لَقَدْ جَاءَتْ رُسُلُ رَبِّنَا بِالْحَقِّ**
 
 </div>
 
-> *"All praise is for Allāh who guided us to this, and we would never have been guided had Allāh not guided us."* **[7:43]**
+> *"All praise and thanks be to Allāh, Who has guided us to this, and never could we have found guidance were it not that Allāh had guided us! Indeed, the Messengers of our Lord did come with the truth."*
 
 ---
 
@@ -157,11 +157,11 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 
 <div align="center">
 
-**اللَّهُمَّ صَلِّ وَسَلِّمْ عَلَىٰ نَبِيِّنَا مُحَمَّدٍ وَعَلَىٰ آلِهِ وَأَصْحَابِهِ أَجْمَعِينَ وَمَنْ تَبِعَهُمْ بِإِحْسَانٍ إِلَىٰ يَوْمِ الدِّينِ**
+**اللَّهُمَّ صَلِّ وَسَلِّمْ عَلَىٰ نَبِيِّنَا مُحَمَّدٍ وَعَلَىٰ آلِهِ وَأَصْحَابِهِ أَجْمَعِينَ وَعَلَىٰ كُلِّ مَنْ تَبِعَهُمْ بِإِحْسَانٍ إِلَىٰ يَوْمِ الدِّينِ**
 
 </div>
 
-> *"O Allāh, send prayers and peace upon our Prophet Muḥammad, his family, his companions, and all who follow them in righteousness until the Day of Judgement."*
+> *"O Allāh, send prayers and peace upon our Prophet Muḥammad, his family, his companions, and upon all who follow them in righteousness until the Day of Judgement."*
 
 ---
 
@@ -236,6 +236,18 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 </div>
 
 > *"Our Lord! Verily, it is You Who will gather mankind together on the Day about which there is no doubt. Verily, Allāh never breaks His Promise."*
+
+---
+
+### [3:16] — Proclamation of Belief, Forgiveness and Protection
+
+<div align="center">
+
+**رَبَّنَآ إِنَّنَآ ءَامَنَّا فَٱغْفِرْ لَنَا ذُنُوبَنَا وَقِنَا عَذَابَ ٱلنَّارِ**
+
+</div>
+
+> *"Our Lord! Indeed we have believed, so forgive us our sins and protect us from the punishment of the Fire."*
 
 ---
 
@@ -347,7 +359,7 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 
 ---
 
-### [7:23] — Repentance of Ādam ﷺ
+### [7:23] — Repentance of Ādam and Hawwāʾ ﷺ
 
 <div align="center">
 
@@ -849,11 +861,11 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 
 <div align="center">
 
-**اللَّهُمَّ إِنِّي أَسْأَلُكَ الْهُدَىٰ وَالتُّقَىٰ وَالْعَفَافَ وَالْغِنَىٰ**
+**اللَّهُمَّ إِنِّي أَسْأَلُكَ الْهُدَىٰ وَالتُّقَىٰ وَالْعَفَافَ وَالْغِنَىٰ وَمِنَ الْعَمَلِ مَا تَرْضَىٰ**
 
 </div>
 
-> *"O Allāh, I ask You for guidance, piety, chastity, and sufficiency."*
+> *"O Allāh, I ask You for guidance, piety, chastity, sufficiency, and deeds that You are pleased with."*
 
 ---
 
@@ -866,6 +878,30 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 </div>
 
 > *"O Allāh, I ask You for beneficial knowledge, pure provision, and accepted deeds."*
+
+---
+
+### Love of Allāh and Love of Those Who Love Him
+
+<div align="center">
+
+**اللَّهُمَّ إِنِّي أَسْأَلُكَ حُبَّكَ، وَحُبَّ مَنْ يُحِبُّكَ، وَالْعَمَلَ الَّذِي يُبَلِّغُنِي حُبَّكَ، اللَّهُمَّ اجْعَلْ حُبَّكَ أَحَبَّ إِلَيَّ مِنْ نَفْسِي وَأَهْلِي وَمِنَ الْمَاءِ الْبَارِدِ**
+
+</div>
+
+> *“O Allāh, I ask You for Your love, and the love of those who love You, and deeds that will bring me to Your love. O Allāh, make Your love more beloved to me than myself, my family, and cool water.”*
+
+---
+
+### Jannah, Righteous Deeds, and Protection from the Fire
+
+<div align="center">
+
+**اللَّهُمَّ إِنِّي أَسْأَلُكَ الْجَنَّةَ وَمَا يُقَرِّبُ إِلَيْهَا مِنْ قَوْلٍ وَعَمَلٍ، وَأَعُوذُ بِكَ مِنَ النَّارِ وَمَا يُقَرِّبُ إِلَيْهَا مِنْ قَوْلٍ وَعَمَلٍ**
+
+</div>
+
+> *“O Allāh, I ask You for Paradise and for whatever brings one closer to it in word and deed, and I seek refuge in You from the Fire and from whatever brings one closer to it in word and deed.”*
 
 ---
 
@@ -939,7 +975,7 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 
 </div>
 
-> *“O Allāh, I ask You for well-being in this world and the Hereafter… and I seek refuge in Your greatness from being destroyed from beneath me.”*
+> *“O Allāh, I ask You for well-being (ʿāfiyah) in this world and the Hereafter. O Allāh, I ask You for pardon and well-being in my religion, my worldly life, my family, and my wealth. O Allāh, conceal my faults and calm my fears. O Allāh, protect me from in front of me, from behind me, on my right, on my left, and from above me, and I seek refuge in Your greatness from being destroyed from beneath me.”*
 
 ---
 
@@ -951,7 +987,7 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 
 </div>
 
-> *“O Allāh, Originator of the heavens and the earth… I seek refuge in You from the evil of myself and from Shayṭān and his shirk.”*
+> *“O Allāh, Originator of the heavens and the earth, Knower of the unseen and the seen, Lord and Sovereign of all things, I bear witness that none has the right to be worshipped except You. I seek refuge in You from the evil of my own self, from the evil of Shayṭān and his shirk (associating partners with You), and from committing any harm against myself or bringing it upon any Muslim.”*
 
 ---
 
@@ -998,7 +1034,8 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 - **Parents** — Mum, Dad
 - **Siblings** — Brothers, Sisters
 - **Extended Family** — Cousins, Grandparents, Uncles, Aunties
-- **Future Spouse** — A righteous future wife filled with sakīnah, mawaddah, and raḥmah
+- **Teachers** — Past, present, and future teachers
+- **Future Spouse** — A righteous future spouse filled with sakīnah, mawaddah, and raḥmah
 - **Future Children** — Righteous, obedient offspring who are a coolness of the eyes
 - **Future In-Laws** — A righteous and welcoming family
 - **Friends** — Righteous companions who remind of Allāh and the Ākhirah
@@ -1010,6 +1047,7 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 ### Dīn & Īmān
 
 - Firmness upon Islām and the Sunnah
+- Firm belief and reliance upon Allāh and absence of belief and reliance upon the asbāb
 - Sincere tawbah (repentance) accepted by Allāh
 - Ḥusn al-Khātimah — a good ending upon Īmān
 - Love of the Qurʾān and consistency in reciting and understanding it
@@ -1048,6 +1086,7 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 - Spite
 - Greed
 - Love of the dunyā (ḥubb al-dunyā)
+- Hypocrisy (nifāq)
 
 ---
 
@@ -1448,17 +1487,29 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 
 ---
 
+### Supporting the Dīn of Muḥammad ﷺ and Forsaking Its Opponents
+
+<div align="center">
+
+**اللَّهُمَّ انْصُرْ مَنْ نَصَرَ دِينَ مُحَمَّدٍ ﷺ، وَاجْعَلْنَا مِنْهُمْ، وَاخْذُلْ مَنْ خَذَلَ دِينَ مُحَمَّدٍ ﷺ، وَلَا تَجْعَلْنَا مِنْهُمْ**
+
+</div>
+
+> *“O Allāh, support those who support the religion of Muḥammad ﷺ, and make us among them; and abandon those who abandon the religion of Muḥammad ﷺ, and do not make us among them.”*
+
+---
+
 ## Final Closing
 
 ### Final Ṣalawāt
 
 <div align="center">
 
-**اللَّهُمَّ صَلِّ وَسَلِّمْ وَبَارِكْ عَلَىٰ نَبِيِّنَا مُحَمَّدٍ وَعَلَىٰ آلِهِ وَصَحْبِهِ أَجْمَعِينَ**
+**اللَّهُمَّ صَلِّ وَسَلِّمْ وَبَارِكْ عَلَىٰ نَبِيِّنَا مُحَمَّدٍ وَعَلَىٰ آلِهِ وَصَحْبِهِ أَجْمَعِينَ، وَمَنِ اسْتَنَّ بِسُنَّتِهِ إِلَىٰ يَوْمِ الدِّينِ**
 
 </div>
 
-> *"O Allāh, send prayers, peace, and blessings upon our Prophet Muḥammad, and upon his family and all his companions."*
+> *“O Allāh, send prayers, peace, and blessings upon our Prophet Muḥammad, upon his family and all his companions, and upon whoever follows his Sunnah until the Day of Judgment.”*
 
 ---
 
