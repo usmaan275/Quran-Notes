@@ -1,4 +1,4 @@
-# ʿArafah-Duʿāʾ — Day of ʿArafah Duʿāʾ List
+# Day of ʿArafah - Duʿāʾ List
 
 A comprehensive collection of supplications for the blessed Day of ʿArafah, including praises of Allāh, Qurʾānic duʿās, Sunnah duʿās, personal duʿāʾ reminders, and Qunūt al-Nāzilah for the Ummah.
 
@@ -15,6 +15,18 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 </div>
 
 > *"O Allāh, You are As-Salām (the Source of Peace), and from You is all peace. Blessed are You, O Possessor of Majesty and Honour."*
+
+---
+
+### Duʿāʾ of Provision and Prevention
+
+<div align="center">
+
+**اللَّهُمَّ لَا مَانِعَ لِمَا أَعْطَيْتَ، وَلَا مُعْطِيَ لِمَا مَنَعْتَ، وَلَا يَنْفَعُ ذَا الْجَدِّ مِنْكَ الْجَدُّ**
+
+</div>
+
+> *"O Allāh, none can withhold what You give, and none can give what You withhold. And no possessor of wealth or status can benefit against You from his wealth or status."*
 
 ---
 
