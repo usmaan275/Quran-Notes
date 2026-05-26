@@ -431,6 +431,17 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 
 ---
 
+### Duʿāʾ of Prophet Yūsuf ﷺ
+<div align="center">
+
+**فَاطِرَ السَّمَاوَاتِ وَالْأَرْضِ أَنْتَ وَلِيِّي فِي الدُّنْيَا وَالْآخِرَةِ ۖ تَوَفَّنِي مُسْلِمًا وَأَلْحِقْنِي بِالصَّالِحِينَ**
+
+</div>
+
+> *“O Originator of the heavens and the earth, You are my Protector in this world and the Hereafter. Cause me to die as a Muslim and join me with the righteous.”*
+
+---
+
 ### [14:35] — Safety and Protection from Idols
 
 <div align="center">
