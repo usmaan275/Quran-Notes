@@ -773,6 +773,18 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 
 ---
 
+### Another well-known forgiveness duʿāʾ (general)
+
+<div align="center">
+
+**اللَّهُمَّ اغْفِرْ لِي ذَنْبِي كُلَّهُ، دِقَّهُ وَجِلَّهُ، وَأَوَّلَهُ وَآخِرَهُ، وَعَلَانِيَتَهُ وَسِرَّهُ**
+
+</div>
+
+> *“O Allah, forgive me all of my sins, the small and the great, the first and the last, the open and the hidden.”*
+
+---
+
 ### Duʿāʾ for Cure
 
 <div align="center">
@@ -794,6 +806,18 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 </div>
 
 > *"O Allāh, I ask You for the good that Your Prophet Muḥammad ﷺ asked You for, and I seek refuge in You from the evil that Your Prophet Muḥammad ﷺ sought refuge in You from. You are the One whose help is sought, and it is upon You to deliver (the message). There is no power or strength except with Allāh."*
+
+---
+
+### Comfort in the Grave, Guidance, and Blessings of the Qurʾān
+
+<div align="center">
+
+**اللَّهُمَّ آنِسْ وَحْشَتِي فِي قَبْرِي، اللَّهُمَّ ارْحَمْنِي بِالْقُرْآنِ الْعَظِيمِ، وَاجْعَلْهُ لِي إِمَامًا وَنُورًا وَهُدًى وَرَحْمَةً، اللَّهُمَّ ذَكِّرْنِي مِنْهُ مَا نَسِيتُ، وَعَلِّمْنِي مِنْهُ مَا جَهِلْتُ، وَارْزُقْنِي تِلَاوَتَهُ آنَاءَ اللَّيْلِ وَأَطْرَافَ النَّهَارِ، وَاجْعَلْهُ لِي حُجَّةً يَا رَبَّ الْعَالَمِينَ**
+
+</div>
+
+> *"O Allāh, bring comfort to my loneliness in my grave, have mercy upon me through the Magnificent Qurʾān, and make it for me a leader, a light, guidance, and mercy. O Allāh, remind me of what I have forgotten of it, teach me what I do not know of it, grant me its recitation during the hours of the night and the edges of the day, and make it a proof for me, O Lord of the worlds."*
 
 ---
 
@@ -904,6 +928,66 @@ A comprehensive collection of supplications for the blessed Day of ʿArafah, inc
 </div>
 
 > *"O Allāh, I seek refuge in You from anxiety and grief, and I seek refuge in You from weakness and laziness, and I seek refuge in You from cowardice and miserliness, and I seek refuge in You from being overcome by debt and overpowered by men."*
+
+---
+
+### ʿĀfiyah, Protection, and Safety
+
+<div align="center">
+
+**اللَّهُمَّ إِنِّي أَسْأَلُكَ الْعَافِيَةَ فِي الدُّنْيَا وَالْآخِرَةِ، اللَّهُمَّ إِنِّي أَسْأَلُكَ الْعَفْوَ وَالْعَافِيَةَ فِي دِينِي وَدُنْيَايَ وَأَهْلِي وَمَالِي، اللَّهُمَّ اسْتُرْ عَوْرَاتِي وَآمِنْ رَوْعَاتِي، اللَّهُمَّ احْفَظْنِي مِنْ بَيْنِ يَدَيَّ وَمِنْ خَلْفِي وَعَنْ يَمِينِي وَعَنْ شِمَالِي وَمِنْ فَوْقِي، وَأَعُوذُ بِعَظَمَتِكَ أَنْ أُغْتَالَ مِنْ تَحْتِي**
+
+</div>
+
+> *“O Allāh, I ask You for well-being in this world and the Hereafter… and I seek refuge in Your greatness from being destroyed from beneath me.”*
+
+---
+
+### Tawḥīd and Protection from Evil
+
+<div align="center">
+
+**اللَّهُمَّ فَاطِرَ السَّمَاوَاتِ وَالْأَرْضِ، عَالِمَ الْغَيْبِ وَالشَّهَادَةِ، رَبَّ كُلِّ شَيْءٍ وَمَلِيكَهُ، أَشْهَدُ أَنْ لَا إِلَهَ إِلَّا أَنْتَ، أَعُوذُ بِكَ مِنْ شَرِّ نَفْسِي، وَمِنْ شَرِّ الشَّيْطَانِ وَشِرْكِهِ، وَأَنْ أَقْتَرِفَ عَلَى نَفْسِي سُوءًا أَوْ أَجُرَّهُ إِلَى مُسْلِمٍ**
+
+</div>
+
+> *“O Allāh, Originator of the heavens and the earth… I seek refuge in You from the evil of myself and from Shayṭān and his shirk.”*
+
+---
+
+### Constant Reliance upon Allāh
+
+<div align="center">
+
+**يَا حَيُّ يَا قَيُّومُ، بِرَحْمَتِكَ أَسْتَغِيثُ، أَصْلِحْ لِي شَأْنِي كُلَّهُ، وَلَا تَكِلْنِي إِلَى نَفْسِي طَرْفَةَ عَيْنٍ**
+
+</div>
+
+> *“O Ever-Living, O Sustainer, by Your mercy I seek help. Rectify all my affairs and do not leave me to myself even for the blink of an eye.”*
+
+---
+
+### Protection from Trials, Grave, and Hellfire
+
+<div align="center">
+
+**اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنْ عَذَابِ الْقَبْرِ، وَمِنْ عَذَابِ النَّارِ، وَمِنْ فِتْنَةِ الْمَحْيَا وَالْمَمَاتِ، وَمِنْ فِتْنَةِ الْمَسِيحِ الدَّجَّالِ**
+
+</div>
+
+> *“O Allāh, I seek refuge in You from the punishment of Hell, from the punishment of the grave, from the trials of life and death, and from the trial of the False Messiah (Dajjāl).”*
+
+---
+
+### Protection from “Arzal al-ʿUmur” (Decrepit Old Age)
+
+<div align="center">
+
+**اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنَ الْبُخْلِ، وَأَعُوذُ بِكَ مِنَ الْجُبْنِ، وَأَعُوذُ بِكَ أَنْ أُرَدَّ إِلَى أَرْذَلِ الْعُمُرِ، وَأَعُوذُ بِكَ مِنْ فِتْنَةِ الدُّنْيَا، وَأَعُوذُ بِكَ مِنْ عَذَابِ الْقَبْرِ**
+
+</div>
+
+> *“O Allāh, I seek refuge in You from miserliness, from cowardice, from being returned to decrepit old age, from the trials of this world, and from the punishment of the grave.”*
 
 ---
 
